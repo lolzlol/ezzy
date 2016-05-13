@@ -1,0 +1,2 @@
+# ezzy.xyz
+ezzy.xyz
